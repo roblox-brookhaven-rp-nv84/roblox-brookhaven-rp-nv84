@@ -1,4 +1,4 @@
-
+Experience roblox forsaken like never before with no-ban Script for roblox forsaken - no cooldown and auto-collect, the #1 Script. Includes no
 
 
 ---
